@@ -1,1 +1,3 @@
-# saphir-cacat-nuker
+# discord.gg/lord
+
+pwp razvy, york
